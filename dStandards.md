@@ -8,3 +8,6 @@
     * 华尔街日报 WSJ 2021-2-4  https://www.wsj.com/articles/states-pressure-drug-makers-after-mckinseys-600-million-opioid-settlement-11612476966
   * 波音公司在2018年737发生事故后，只考虑PR，掩盖安全问题，酿成2019年第二次空难
     * 华尔街日报 WSJ 2021-2-9  https://www.wsj.com/articles/boeing-board-failed-to-challenge-ceo-on-737-max-safety-lawsuit-says-11612835206
+  * 法国名流Olivier Duhamel，president of the foundation overseeing  Sci-ences Po， 被举报性侵男性幼童
+    * 华尔街日报 WSJ 2021-2-18  https://www.wsj.com/articles/sex-abuse-accusations-roil-french-establishment-11613664466
+ 
